@@ -1,4 +1,3 @@
 # Rainbow-song
 song about rainbow
-hf khdkjhdkjfgjgfkhsdfigifh
-welrhsjkrfhskf
+Rain Rain Come every Day
